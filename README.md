@@ -1,2 +1,2 @@
 Oiee, sou a Kauana
-Estudante 
+Estudante do Senac
